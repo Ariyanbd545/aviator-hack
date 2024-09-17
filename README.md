@@ -1,6 +1,6 @@
 # aviator-hack
-
-
+B5690EEEBB952194
+activation code 
 <h3 align=center>
 <img src='https://github.com/user-attachments/assets/a4c011b6-e2f1-4cad-aaa0-138ba9082333'>
 </h3>
